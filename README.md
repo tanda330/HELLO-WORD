@@ -1,2 +1,2 @@
 # HELLO-WORD
-Elso
+Nem tudom mi ez, de majd kiderül. Talán :)
